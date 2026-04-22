@@ -59,6 +59,8 @@
 24. https://www.blablacar.ru/ Нельзя зарегистрироваться используя почту с алиасом.
 
 25. https://nzbsearchmachine.com/ Высылают на почту все регистранные данные: логин и пароль
+
+26. https://oskelly.ru/ чек отзывы https://irecommend.ru/content/absolyutnaya-naglost-obman-i-moshennichestvo-platformy-oskelly-otvratitelnaya-platforma-ni-r https://irecommend.ru/content/sait-oskelly
 ---
 
 Не смотря на все эти недостатки на сайтах главным остаётся ценный контент. Регайте временную почту с левых IP и забейте на правила и не предавайте значения своему аккаунту. Всё тлен.
